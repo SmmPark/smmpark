@@ -1,6 +1,6 @@
 # 🚀 SMM PARK
 
-![SMM PARK](https://github.com/yourusername/yourrepo/assets/xxxxx/logo.png)
+![SMM PARK](https://i.postimg.cc/m2XtZVXF/Whats-App-Image-2026-03-03-at-3-17-29-PM.jpg)
 
 ## 🌍 Best SMM Panel Worldwide
 
