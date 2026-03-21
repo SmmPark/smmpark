@@ -1,6 +1,6 @@
 # 🚀 SMM PARK
 
-![SMM PARK LOGO](https://i.imgur.com/yourlogo.png)
+![SMM PARK](https://github.com/yourusername/yourrepo/assets/xxxxx/logo.png)
 
 ## 🌍 Best SMM Panel Worldwide
 
