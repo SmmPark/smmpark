@@ -28,7 +28,7 @@ Affordable & Fast Social Media Marketing Services
 https://smmpark.in
 
 ## 📢 WhatsApp 
-[https://t.me/yourlink](https://wa.me/+9191422292547)
+[https://wa.me/+9191422292547]
 
 ---
 
